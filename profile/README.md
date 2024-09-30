@@ -4,7 +4,7 @@
 
 **Have a look around:**
 
-🙋‍♀️ Anything your brain can dream of can be found
+🙋‍♀️ Anything that brain of yours can dream of can be found
 
 🌈 We’ve got plentiy of titles, some thrilling, some serene. If none of these could interest to you, you'd be the first.
 
