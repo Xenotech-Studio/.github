@@ -6,7 +6,7 @@
 
 🙋‍♀️ Anything your brain can dream of can be found
 
-🌈 We’ve got immersive worlds, some smaller, some vast. If none of it's of interest to you, you'd be the first.
+🌈 We’ve got plentiy of titles, some thrilling, some serene. If none of these could interest to you, you'd be the first.
 
 **Welcome to the Xenotech! Come and take a seat**
 
