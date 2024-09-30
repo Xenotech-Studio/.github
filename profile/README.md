@@ -1,6 +1,6 @@
 ## Welcome to Xenotech 👋
 
-<!--
+
 
 **Have a look around:**
 
@@ -19,4 +19,3 @@
 🧙 Would you like to wield a sword or cast some magic blur?
 
 🏃 Be fearless! Be fast! Be bursting with might! We’ve got a million ways to heighten your fight.
--->
